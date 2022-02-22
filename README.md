@@ -5,3 +5,4 @@
 * готов на всё
 * могу сегодня
 * да, так и поступим
+![IMG_0882](https://user-images.githubusercontent.com/98709597/155233583-28782cb2-47de-4d10-b7e2-19b706ea085f.JPG)
